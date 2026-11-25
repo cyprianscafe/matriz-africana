@@ -1,0 +1,21 @@
+<h1 align="center">✧ Altares espirituais e a realização de <i>misas</i> ✧</h1>
+
+Normalmente, utilizam-se de 7 a 9 copos transparentes com água fresca e limpa (da torneira). Também podem ser empregados um ou duas velas, *cascarilla* (pó de casca de ovo), rum (*malafo*), *jícara* (cuia), água benta, charutos, incenso, entre outros itens.
+
+Dois elementos muito importantes são a bacia utilizada para conter a água de Iemanjá (*La Virgen de Regla*) e as *yerbas* (ervas e plantas), usadas para realizar a limpeza espiritual de todos os presentes durante uma *misa* (missa/cerimônia). A água contida na bacia serve para essa purificação e, ao final da cerimônia, é descartada — preferencialmente, jogando-a para fora pela porta da frente.
+
+Alguns sacerdotes também utilizam, durante a cerimônia, um bastão sagrado conhecido como *Palo de los Muertos* ("pau dos mortos"). Esses bastões podem ser confeccionados a partir de um galho de goiabeira ou de outra árvore considerada sagrada para uma linhagem ou tradição específica.
+
+Há sacerdotes que também empregam pedaços de tecido de sete cores diferentes, representando os "Sete Poderes Africanos". Esses tecidos são igualmente utilizados para a limpeza espiritual de todos os presentes na cerimônia.
+
+Observação: Altares espirituais devem ser sempre abençoados e montados por um sacerdote ou espiritualista que possua o devido conhecimento.
+
+A maioria dos fiéis realiza orações com frequência mensal, quinzenal ou semanal. Tais preces podem ocorrer em dias variados da semana, conforme a tradição ou o costume seguido. Por exemplo: é comum, aos domingos, realizar a limpeza da *bóveda* (altar espiritual) e fazer orações após prepará-la com flores frescas e outros elementos. Também é habitual — aos domingos ou nas noites de segunda-feira (ao anoitecer ou após esse horário) — que os fiéis se reúnam ao redor da *bóveda* em um cômodo, na cozinha, no quintal, na garagem ou em qualquer local apropriado para encontros espirituais. Além disso, em diversas casas da tradição *Palo*, é comum encontrar altares dispostos na residência, em um anexo, no templo (*Nso*) ou no recinto onde se encontra a *Nganga*.
+
+A *boveda* é, geralmente, montada com 7 ou 9 copos de água transparentes. Um copo maior costuma ser colocado no centro, embora isso não seja obrigatório caso você não o tenha. Em alguns templos (casas), sete copos de água podem representar os Sete Poderes Africanos, enquanto 9 copos são utilizados em casas que também praticam *Las Reglas del Congo*. Nas casas de *Palo*, entre outras, o uso de 9 copos em uma *boveda* está relacionado tanto a Centella (Oyá – Santa Teresa de Jesus) quanto a Sarabanda. O número de copos utilizados em uma *boveda* não indica, necessariamente, se um determinado templo segue ou não as vertentes do *Palo*; isso depende da tradição específica de cada templo ou linhagem. O número máximo de copos costuma ser 9.
+
+Para explicar melhor, no caso de pessoas que não seguem o *Palo* mas utilizam 9 copos: sete copos de água representam os Sete Poderes Africanos (um no centro e seis ao redor), enquanto os outros dois copos são destinados, respectivamente, aos espíritos da família (ancestrais) e aos Espíritos Protetores da pessoa. Novamente, isso varia conforme a tradição seguida.
+
+Os copos de água transparentes servem como ferramenta para que o médium espiritual descreva as diversas influências espirituais que se manifestam durante uma *misa* (missa). É possível que apenas o(s) médium(ns) consiga(m) visualizar essas imagens nos copos. Muitas de nossas tradições incorporam combinações de elementos da Santeria, Lukumi, *Palo* e crenças cristãs. Por isso, é comum encontrar, em diferentes casas, combinações variadas de itens como: crucifixos, santos católicos, rosários, *palo del muerto*, *yerbas* (plantas e flores), água com anil e diversos outros objetos, conforme as exigências e tradições de cada templo ou linhagem.
+
+Se uma pessoa segue nossas tradições, ela pode vir a precisar de uma *boveda*, pelos motivos mencionados anteriormente. Você não deve esquecer que a *bóveda* precisa ser montada por uma pessoa que possua o conhecimento adequado. Na maioria das vezes, será necessário que a *bóveda* seja abençoada e consagrada por meio de uma cerimônia espiritual conduzida por médiuns.
