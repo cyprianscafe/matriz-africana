@@ -11,3 +11,20 @@ Vale ressaltar que, embora o Sr. Petit tenha, de fato, incorporado elementos cri
 
 O governo cubano da época — assim como os governos que o sucederam — discriminava severamente indivíduos, negros ou brancos, que seguissem qualquer tradição religiosa que não fosse de origem católica ou cristã. A livre expressão de crenças africanas ou afro-cubanas não era tolerada.
 
+---
+
+<details>
+  <summary>Tags e outras nerdices</summary>
+  
+  ### Dados de Arquivo
+  - **Formato do Material:** Artigo
+  - **Linhagem/Tradição:** Palo
+  - **Período Histórico:** 2001
+  - **Origem:** _Palo_
+  - **Idioma Original:** Inglês
+  - **Região:** Estados Unidos
+
+<sub>💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*</sub>   
+<sub>📧 *Se você quiser ler este texto no idioma original, ou qualquer outro texto de meus repositórios, arquivos ou blogs, envie um e-mail para: contatocyprianscafe@gmail.com*</sub>
+  
+</details>
